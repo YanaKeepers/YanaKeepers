@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YanaKeepers
+- 👀 We work with best startups and scaleups and help them to grow and develop
+- 🌱 If you are interested in chatting about new opportnities - then chat to me 
+- 💞️ Great referral bonuses are real and I can help you get one :) 
+- 📫 How to reach me: yana.arif@findyourkeepers.com / 07507871121
